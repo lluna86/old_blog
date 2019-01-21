@@ -12,13 +12,10 @@ Cuando te decidas decirle de forma regular que te vas de casa y ya lo hayas prac
 
 Aquí van algunos consejos que te pueden ayudar para no tener que hacer trucos de desaparición cada vez que te vas:
 
-• > Usa lenguaje claro y sencillo para despedirte
-
-• > Muéstrate cálido y sonriente
-
-• > No alargues la despedida
-
-• > A tu regreso, un abrazo de reencuentro!
+* Usa lenguaje claro y sencillo para despedirte
+* Muéstrate cálido y sonriente
+* No alargues la despedida
+* A tu regreso, un abrazo de reencuentro!
 
 Si tu hij@ se entretiene hasta tu vuelta y se alegra al verte se está consolidando el aprendizaje. Aún así ten en cuenta que todo aprendizaje tiene su proceso y sus deslices. Habrá que enseñar la destreza y seguir practicándola. Te animo a que lo intentes y compartas conmigo tus experiencias, comentarios o dudas.
 
