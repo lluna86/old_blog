@@ -6,8 +6,6 @@ categories: infantil ocio agua piscina playa
 ---
 ¿Tu bebé se pone a llorar desconsoladamente cuando le toca salir de la piscina? Aquí van seis consejos que te ayudaran a conseguir que tu hijo salga de la piscina sin lloros.
 
-
-
 ## 1. Avisa con antelación de que os tendréis que ir de la piscina
 
 Por ejemplo, dile: "Ya pronto nos iremos de la piscina, le diremos adiós a la piscina" y haz el gesto de adiós con la mano.
@@ -22,6 +20,6 @@ Dale a tu hijo/a unos minutos más para jugar y disfrutar del agua, recordándol
 
 Di: "Hacemos la última, vale? Hacemos la última" y haced lo que estábais haciendo una última vez, por ejemplo, último salto, último giro cogido/a de ti o última buceada. Después de hacer la última ya es hora de salir de la piscina y tendrás que ir repitiendo la despedida "adiós piscina, hasta mañana" mientras salís, con tono alegre y distendido, buscando que tu hijo/a también se despida.
 
-## 4. Felicítale a la salida, lo está haciendo bien! 
+## 4. Felicítale a la salida, ¡lo está haciendo bien!
 
-Tenlo todo listo para hacer una salida efectiva y afectiva, muéstrale tu cariño por los pequeños avances. Tendrás que intentarlo más veces si tu hijo se ha encallado en algún paso pero seguramente verás progreso paso a paso con la repetición de los pasos.
+Tenlo todo listo para hacer una salida efectiva y afectiva, muéstrale tu cariño por los pequeños avances. Seguramente tendrás que repetir el proceso más veces. Sobretodo no te olvides de los pasos para ayudar a que tu hijo/a comprenda la despedida y sepa lo que va a pasar cuando toque alejarse de algo tan fascinante como el agua.
