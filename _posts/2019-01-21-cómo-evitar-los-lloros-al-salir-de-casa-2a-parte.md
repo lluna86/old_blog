@@ -6,13 +6,11 @@ categories: infantil
 ---
 Tienes la sensación que decirle a tu hijo que te vas es peor que irse a escondidas? Puede ser que tu hijo o hija aún no entienda qué significa que te vas y vuelves al poco rato. 
 
-# Primero, enseña qué significa "me voy, en seguida vuelvo"
+# Primero, enseña qué significa "me voy, enseguida vuelvo"
 
 Antes que nada, ¿le has mostrado a tu hijo/a de una manera sencilla qué es una despedida? Mira **aquí** (LINK: Consejos para evitar que tu hijo llore cuando sales de casa (1a parte)) para aprender los primeros pasos hacia una despedida sin lloros. 
 
 A partir de esas prácticas tu despedida debe tener los mismos pasos aunque el tiempo de ausencia será mayor. Aquí van cuatro consejos importantes que te ayudarán a no tener que hacer trucos de desaparición cada vez que salgas de casa.
-
-
 
 ## 1. Usa lenguaje claro y sencillo para despedirte
 
