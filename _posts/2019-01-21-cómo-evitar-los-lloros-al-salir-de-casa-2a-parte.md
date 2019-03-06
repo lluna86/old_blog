@@ -1,12 +1,12 @@
 ---
 layout: post
-title: Consejos para evitar que tu hijo llore cuando sales de casa (2a parte)
+title: Consejos para evitar que tu hijo llore cuando sales de casa
 date: 2019-01-21T21:04:14.941Z
 categories: infantil
 ---
 Tienes la sensación que decirle a tu hijo que te vas es peor que irse a escondidas? Puede ser que tu hijo o hija aún no entienda qué significa que te vas y vuelves al poco rato. 
 
-# Primero, enseña qué significa "me voy, enseguida vuelvo"
+# Primero, enseña qué significa "me voy, vuelvo enseguida"
 
 Antes que nada, ¿le has mostrado a tu hijo/a de una manera sencilla qué es una despedida? Mira **aquí** (LINK: Consejos para evitar que tu hijo llore cuando sales de casa (1a parte)) para aprender los primeros pasos hacia una despedida sin lloros. 
 
