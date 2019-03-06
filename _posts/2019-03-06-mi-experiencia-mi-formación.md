@@ -12,6 +12,9 @@ categories: formación
 * Especialista en Trastornos del Espectro Autista
 * Especialista en acompañamiento a padres durante el desarrollo integral de sus hijos
 * Especialista en sistema PECS, TEACCH, PRT, SCERTS y en terapia de juego
+
+
+
 * Psicòloga General Sanitària acreditada pel Col·legi de Psicòlegs de Catalunya
 * Llicenciada en Psicología. Universitat de Barcelona
 * Màster en Paidopsiquiatria y Psicologia Clínica de la Infància y l'Adolescència. Universitat Autònoma de Barcelona
