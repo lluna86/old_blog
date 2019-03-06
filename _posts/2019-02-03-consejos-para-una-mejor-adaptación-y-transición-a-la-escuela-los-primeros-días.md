@@ -1,8 +1,6 @@
 ---
 layout: post
-title: >-
-  Consejos para una mejor adaptación y transición a la escuela. Los primeros
-  días.
+title: Consejos para los primeros días de escuela
 date: 2019-02-03T21:31:50.360Z
 categories: infancia escuela adaptación
 ---
