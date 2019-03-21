@@ -4,7 +4,7 @@ title: 'Tipos de vínculos, ¿cuál es el de tu hijo?'
 date: 2019-03-21T11:55:59.651Z
 categories: vínculo apego relación infancia
 ---
-Hoy hablaremos de los distintos de los niños y niñas.
+Hoy hablaremos de los distintos tipos de vínculos afectivos de los niños y niñas.
 
 Un **vínculo afectivo** se refiere a la relación que une a las personas, lazos invisibles y emocionales que mantienen unidos a los individuos. En psicología, a este vínculo se le llama apego.
 
