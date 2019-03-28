@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 'Tipos de vínculos, ¿cuál es el de tu hijo?'
+title: 'Tipos de apego, ¿qué vínculo tiene tu hijo?'
 date: 2019-03-21T11:55:59.651Z
 categories: vínculo apego relación infancia
 ---
@@ -8,9 +8,9 @@ Hoy hablaremos de los distintos tipos de vínculos afectivos de los niños y ni�
 
 Un **vínculo afectivo** se refiere a la relación que une a las personas, lazos invisibles y emocionales que mantienen unidos a los individuos. En psicología, a este vínculo se le llama apego.
 
-Este concepto es fundamental en las relaciones entre personas, se inicia desde la infancia con la relación con nuestros padres, familiares o cuidadores principales y estará presente a lo largo de la vida. El **estilo de apego** establecido durante la infancia marcará la manera de relacionarse tanto con las personas cercanas como con las demás personas. 
+Este concepto es fundamental en las relaciones entre personas, se inicia en la infancia con la relación con nuestros padres, familiares o cuidadores principales y estará presente a lo largo de la nuestras vidas. Además, el **estilo de apego** establecido durante la infancia marcará la manera de relacionarse tanto con las personas cercanas como con las demás personas. 
 
-Según el creador de la teoría del apego, John Bowlby, existen **cuatro tipos de apego**.
+Según el creador de la teoría del apego, John Bowlby, existen **cuatro tipos de apego:**
 
 1. Apego seguro
 
