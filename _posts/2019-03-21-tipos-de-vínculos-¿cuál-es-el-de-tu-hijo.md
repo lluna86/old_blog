@@ -39,3 +39,7 @@ En estos casos el niño tiende a no buscar seguridad y protección de la figura 
 Se trata de un tipo de apego menos común por ser más habitual en situaciones de maltrato o violencia intrafamiliar. Este tipo de apego sería una mezcla de los dos tipos de apego inseguro anteriores donde la figura de apego es a la vez cuidadora y protectora como negligente y propicia al abandono.
 
 En estos casos los niños con este tipo de vínculo pueden mostrar reacciones distintas según la situación con la sensación general de no poderse tranquilizar ni con la presencia ni con la ausencia de la figura de apego y la búsqueda de afecto es también inconsitente. Los adultos con apego desorganizado se caracterizan por tener sentimientos contradictorios en sus relaciones interpersonales, desconfiando de los demás y poca confianza en sí mismo y los demás en cuando a la muestra de emociones.
+
+
+
+¿Qué tipo de apego tiene tu hijo?
