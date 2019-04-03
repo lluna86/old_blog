@@ -18,8 +18,10 @@ El apego seguro es aquel tipo de vinvulación donde el niño/a se siente seguro 
 
 ## 2. Apego ansioso / ambivalente
 
-Se trata de un tipo de apego inseguro. Es este tipo de apego se origina cuando el niño o niña no percibe a la figura de apego como una figura que pueda responder a su presencia en caso de miedo o peligro, por lo que le resulta difícil alejarse. Ello puede deberse a un contacto inconsistente o incoherente en cuanto a las necesidades del niño o niña, haciendo que el niño/a dude de lo que puede esperar en cada situación.
+Se trata de un tipo de apego inseguro. Los niños con este tipo de apego se muestran inseguros y suelen mantenerse cerca de la figura de apego en todo momento. El hecho de perder de vista tal figura de apego genera en el niño mucha angustia y sufrimiento y a su vuelta el niño el contacto pero mostrando enfados constantes, protestas y rechazo por lo que han  sentido como un abandono. 
 
-Los niños con este tipo de apego se muestran inseguros y suelen mantenerse cerca de la figura de apego en todo momento. El hecho de perder de vista tal figura le genera mucha angustia y sufrimiento y a su vuelta el niño busca el contacto pero mostrando rechazo por lo que han  sentido como un abandono. Esta manera de relacionarse desconfiada e insegura puede marcar una tendencia en la forma en que posteriormente la persona se relacione con los demás y su entorno.
+Ello puede deberse a una respuesta inconsistente o incoherente de la figura de apego a las necesidades emocionales del niño o niña. Esta manera de relacionarse desconfiada e insegura puede marcar una tendencia en la forma en que posteriormente la persona se relacione con los demás y su entorno.
+
+
 
 ## 3. Apego evitativo
