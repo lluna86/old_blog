@@ -38,7 +38,20 @@ En estos casos los niños con este tipo de vínculo pueden mostrar reacciones di
 
 Ahora que ya conoces los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. En el siguiente artículo sobre cómo ayudar a establecer un vínculo seguro te pueda ayudar.
 
-Es entre los 6 meses y los dos años cuando tiene mayor importancia tiene el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a establecerá un vínculo seguro cuando la figura de apego sea sensible y comprenda las necesidades afectivas del bebé, sea receptivo y consistente en su atención al menor.
+
+
+Consejos y dudas sobre cómo favorecer un apego seguro
+
+Es entre los seis meses y los dos años cuando tiene mayor importancia el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a establecerá un vínculo seguro cuando la figura de apego sea sensible y comprenda las necesidades afectivas del bebé, sea receptivo y consistente en su atención al menor.
+
+Las bases para establecer un vínculo seguro se podrían resumir en:
+
+* comprender las señales de tu hijo/a y su forma de comunicarse
+* dar respuesta a estas señales de manera afectiva
+* ofrecer seguridad y confianza de manera consistente
+* mostrar afecto y cariño a través del lenguage de un contacto físico afectivo (abrazos, besos, cariños) y del tiempo para estar o jugar con él/ella
+
+El vínculo se va estableciendo poco a poco y requiere constancia del cuidador. Es importante además, que la figura de apego cuide su propio bienestar emocional y físico para poder estar disponible y atenta para una crianza afectiva y segura.
 
 Quizás haya algunas preguntas que quieras responder. ¿Le cuestan mucho a tu hijo los momentos de despedida? Como habrás podido comprobar leyendo sobre los disistintos tiops de apego, **es algo muy normal y corriente que a un niño o niña le provoque malestar y sufrimiento el alejarse de la figura de apego**. Con el tiempo lo más normal es que el malestar disminuya y que el niño o niña sienta que se queda en un entorno seguro y sepa que la figura de apego regresa al cabo de unas cuantas horas. 
 
