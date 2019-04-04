@@ -1,20 +1,18 @@
 ---
 layout: post
-title: 'Tipos de apego, ¿qué vínculo tiene tu hijo?'
+title: Vínculos afectivos y apego. ¿qué tipo de vínculo tiene mi hijo/a?
 date: 2019-03-21T11:55:59.651Z
 categories: vínculo apego relación infancia
 ---
-Hoy hablaremos de los distintos tipos de vínculos afectivos de los niños y niñas.
-
-Un **vínculo afectivo** se refiere a la relación que une a las personas, lazos invisibles y emocionales que mantienen unidos a los individuos. En psicología, a este vínculo se le llama apego.
+Hoy hablaremos de los distintos tipos de vínculos afectivos de los niños y niñas. Un **vínculo afectivo** se refiere a la relación que une a las personas, lazos invisibles y emocionales que mantienen unidos a los individuos. En psicología, a este vínculo se le llama apego.
 
 Este concepto es fundamental en las relaciones entre personas, se inicia en la infancia con la relación con nuestros padres, familiares o cuidadores principales y estará presente a lo largo de la nuestras vidas. Además, el **estilo de apego** **establecido durante la infancia (fundamentalmente entre los 0 meses y los 2 años)** **marcará la manera de relacionarse** tanto con las personas cercanas como con las demás personas de nuestro entorno.
 
-Según la teoría del apego de John Bowlby, existen cuatro tipos de apego**:**
+Según la teoría del apego de John Bowlby, existen cuatro tipos principales de apego**:**
 
 ## 1. Apego seguro
 
-El apego seguro es aquel tipo de vinculación donde el niño/a se siente seguro y **capaz de explorar el entorno con la tranquilidad de saber que puede volver a la figura de apego** y esta le protegerá en caso de malestar o miedo. El hecho de perder de vista tal figura le genera angustia y preocupación y su vuelta es generalmente bien recibida. 
+El apego seguro es aquel tipo de vinculación donde **el niño/a se siente seguro y** **capaz de explorar el entorno con la tranquilidad de saber que puede volver a la figura de apego** y esta le protegerá en caso de malestar o miedo. El hecho de perder de vista tal figura le genera angustia y preocupación y su vuelta es generalmente bien recibida. 
 
 El hecho que el niño con un apego seguro sea capaz de explorar de forma relativamente tranquila será un mecanismo que más adelante aprenderá a usar de manera autónoma en momentos de malestar. Este el tipo de apego más habitual en la infancia y favorece una interacción saludable con iguales en la edad adulta. 
 
@@ -24,22 +22,24 @@ Los niños con este tipo de apego se muestran inseguros y suelen mantenerse cerc
 
 Ello puede deberse a una **respuesta inconsistente o incoherente de la figura de apego a las necesidades emocionales** del niño o niña. Esta manera de relacionarse desconfiada e insegura puede marcar una tendencia en la forma en que posteriormente la persona se relacione con los demás y su entorno.
 
-
-
 ## 3. Apego inseguro evitativo
 
-Este tipo de apego se origina por un tipo de crianza donde **la figura de apego ha sido negligente, lenta o poco sensible de forma consistente a las necesidades emocionales y de protección** del niño. El desarrollo de estos niños se produce con una falta de seguridad en uno mismo y los demás por la sensación de falta de cuidado y abandono que han sentido.
+Este tipo de apego se origina por un tipo de crianza donde **la figura de apego ha sido negligente, lenta o poco sensible consistentemente a las necesidades emocionales y de protección** del niño. El desarrollo de estos niños se produce con una falta de seguridad en uno mismo y los demás por la sensación de falta de cuidado y abandono que han sentido.
 
 En estos casos el niño tiende a no buscar seguridad y protección de la figura de apego, en caso de alejarse no mostrará grandes niveles de sufrimiento y a su regreso se apreciará cierto nivel de indiferencia o evitación de contacto con la figura. Estos niños pueden desarrollarse con la sensación de rechazo a sus necesidades por parte de los demás, lo que puede implicar el uso de mecanismos de evitación como respuesta a tal sensación de abandono.
 
-
-
 ## 4. Apego inseguro desorganizado
 
-Se trata de un tipo de apego menos común por ser más habitual en situaciones de maltrato o violencia intrafamiliar. Este tipo de apego sería una mezcla de los dos tipos de apego inseguro anteriores donde la figura de apego es a la vez cuidadora y protectora como negligente y propicia al abandono.
+Se trata de un tipo de apego menos común por estar relacionado con situaciones de maltrato o violencia intrafamiliar. Este tipo de apego sería una mezcla de los dos tipos de apego inseguro anteriores donde la figura de apego es tanto cuidadora como negligente.
 
-En estos casos los niños con este tipo de vínculo pueden mostrar reacciones distintas según la situación con la sensación general de no poderse tranquilizar ni con la presencia ni con la ausencia de la figura de apego y la búsqueda de afecto es también inconsitente. Los adultos con apego desorganizado se caracterizan por tener sentimientos contradictorios en sus relaciones interpersonales, desconfiando de los demás y poca confianza en sí mismo y los demás en cuando a la muestra de emociones.
+En estos casos los niños con este tipo de vínculo pueden mostrar reacciones distintas según la situación con la sensación general de no poderse tranquilizar ni con la presencia ni con la ausencia de la figura de apego y la búsqueda de afecto es también inconsistente. Los adultos con apego desorganizado se caracterizan por tener dificultad en el procesamiento de sus emociones y sentimientos contradictorios y de desconfianza en sus relaciones interpersonales.
 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\__
 
+Ahora que ya hemos hablado de los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. 
 
-¿Qué tipo de apego tiene tu hijo?
+ ¿Le cuestan mucho los momentos de despedida? Como habrás podido comprobar leyendo sobre los disistintos tiops de apego, es algo muy normal y corriente que a un niño o niña le provoque malestar y sufrimiento el alejarse de la figura de apego. Con el tiempo lo más normal es que el malestar disminuya y que el niño o niña sienta que se queda en un entorno seguro y sepa que la figura de apego regresa al cabo de unas cuantas horas. 
+
+En caso de que el malestar se prolongue mucho en el tiempo al acudir a un entorno seguro y conocido, no estaría de más valorar qué mecanismos pueden estar ocurriendo que haga que tu hijo se sienta inseguro. Los motivos pueden ser muy variados y no tiene porqué estar ligado al hecho de no tener establecido un buen vínculo con la figura de apego. Puede ser por no estar a gusto en el lugar donde se queda el niño/a, puede ser por la sensación de largas horas y puede hasta ser que el malestar es muy acusado cuando la figura de apego está presente pero durar tan solo hasta que se aleja o tan solo unos minutos para luego calmarse y ponerse a explorar y relacionarse con los demás.
+
+Es muy importante el poder compartir estas
