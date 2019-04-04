@@ -14,7 +14,7 @@ Según la teoría del apego de John Bowlby, existen cuatro tipos principales de 
 
 El apego seguro es aquel tipo de vinculación donde **el niño/a se siente seguro y** **capaz de explorar el entorno con la tranquilidad de saber que puede volver a la figura de apego** y esta le protegerá en caso de malestar o miedo. El hecho de perder de vista tal figura le genera angustia y preocupación y su vuelta es generalmente bien recibida. 
 
-El hecho que el niño con un apego seguro sea capaz de explorar de forma relativamente tranquila será un mecanismo que más adelante aprenderá a usar de manera autónoma en momentos de malestar. Este el tipo de apego más habitual en la infancia y favorece una interacción saludable con iguales en la edad adulta. 
+El hecho que el niño con un apego seguro sea capaz de explorar de forma relativamente tranquila será un mecanismo que más adelante aprenderá a usar de manera autónoma en momentos de malestar. Este **es el tipo de apego más habitual** en la infancia y favorece una interacción saludable con iguales en la edad adulta.
 
 ## 2. Apego inseguro ansioso / ambivalente
 
@@ -36,15 +36,15 @@ En estos casos los niños con este tipo de vínculo pueden mostrar reacciones di
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\__
 
-Ahora que ya conoces los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. En el siguiente artículo sobre cómo ayudar a establecer un vínculo seguro te pueda ayudar.
+Ahora que ya conoces los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. En el siguiente artículo sobre cómo ayudar a establecer un vínculo seguro se darán unos consejos para establecer un vínculo seguro y algunas respuestas a las preguntas más habituales.
 
 
 
-Consejos y dudas sobre cómo favorecer un apego seguro
+Consejos para favorecer un apego seguro. Cómo favorecer el vínculo seguro y evitar la sobreprotección ¿proteger demasiado?
 
-Es entre los seis meses y los dos años cuando tiene mayor importancia el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a establecerá un vínculo seguro cuando la figura de apego sea sensible y comprenda las necesidades afectivas del bebé, sea receptivo y consistente en su atención al menor.
+Es entre los primeros meses de vida y los dos años cuando tiene mayor importancia el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a **establecerá un vínculo seguro cuando la figura de apego sea sensible y comprenda las necesidades afectivas del bebé, sea receptivo y consistente** en su atención al menor. 
 
-Las bases para establecer un vínculo seguro se podrían resumir en:
+Así pues, **mamás y papás tienen un papel fundamental** para establecer un vínculo seguro y saludable con sus hijos e hijas. Las bases para establecer un vínculo seguro se podrían resumir en:
 
 * comprender las señales de tu hijo/a y su forma de comunicarse
 * dar respuesta a estas señales de manera afectiva
@@ -53,7 +53,11 @@ Las bases para establecer un vínculo seguro se podrían resumir en:
 
 El vínculo se va estableciendo poco a poco y requiere constancia del cuidador. Es importante además, que la figura de apego cuide su propio bienestar emocional y físico para poder estar disponible y atenta para una crianza afectiva y segura.
 
-Quizás haya algunas preguntas que quieras responder. ¿Le cuestan mucho a tu hijo los momentos de despedida? Como habrás podido comprobar leyendo sobre los disistintos tiops de apego, **es algo muy normal y corriente que a un niño o niña le provoque malestar y sufrimiento el alejarse de la figura de apego**. Con el tiempo lo más normal es que el malestar disminuya y que el niño o niña sienta que se queda en un entorno seguro y sepa que la figura de apego regresa al cabo de unas cuantas horas. 
+Quizás haya algunas preguntas que quieras responder. 
+
+¿Le cuestan mucho a tu hijo los momentos de despedida? 
+
+Como habrás podido comprobar leyendo sobre los disistintos tiops de apego, **es algo muy normal y corriente que a un niño o niña le provoque malestar y sufrimiento el alejarse de la figura de apego**. Con el tiempo lo más normal es que el malestar disminuya y que el niño o niña sienta que se queda en un entorno seguro y sepa que la figura de apego regresa al cabo de unas cuantas horas. 
 
 En caso de que el malestar se prolongue mucho en el tiempo al acudir a un entorno seguro y conocido, no estaría de más valorar **qué mecanismos pueden estar ocurriendo que hagan que tu hijo se sienta inseguro**. Los motivos pueden ser muy variados y no tiene porqué estar ligado al hecho de no tener establecido un buen vínculo con la figura de apego. Puede ser por no estar a gusto en el lugar donde se queda el niño/a, puede ser por la sensación de largas horas y puede hasta ser que el malestar es muy acusado cuando la figura de apego está presente pero durar tan solo hasta que se aleja o tan solo unos minutos para luego calmarse y ponerse a explorar y relacionarse con los demás.
 
