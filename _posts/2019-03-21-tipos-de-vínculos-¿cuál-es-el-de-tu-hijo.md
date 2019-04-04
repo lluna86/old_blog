@@ -36,26 +36,27 @@ En estos casos los niños con este tipo de vínculo pueden mostrar reacciones di
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\__
 
-Ahora que ya conoces los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. En el siguiente artículo sobre cómo ayudar a establecer un vínculo seguro se darán unos consejos para establecer un vínculo seguro y algunas respuestas a las preguntas más habituales.
+Ahora que ya conoces los diferentes estilos de vínculo, quizás querrás saber qué tipo de apego tiene tu hijo/a. ¿Hay algo que te preocupe? Te invito a que compartas tus inquietudes o preocupaciones. En el siguiente artículo sobre cómo ayudar a establecer un vínculo seguro se darán unos consejos y respuestas a las preguntas más habituales.
 
 
 
 Consejos para favorecer un apego seguro. Cómo favorecer el vínculo seguro y evitar la sobreprotección ¿proteger demasiado?
 
-Es entre los primeros meses de vida y los dos años cuando tiene mayor importancia el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a **establecerá un vínculo seguro cuando la figura de apego sea sensible y comprenda las necesidades afectivas del bebé, sea receptivo y consistente** en su atención al menor. 
+Es entre los primeros meses de vida y los dos años cuando tiene mayor importancia el desarrollo del vínculo afectivo entre el niño/a y sus figuras de apego. En este contexto, el niño/a **establecerá un vínculo seguro cuando la figura de apego sea sensible, comprenda y responda a las necesidades afectivas del bebé, sea receptivo y consistente** en su atención al menor. Es el tipo de apego más habitual y éste favorece y ayuda al menor a tener un desarrollo saludable.
 
-Así pues, **mamás y papás tienen un papel fundamental** para establecer un vínculo seguro y saludable con sus hijos e hijas. Las bases para establecer un vínculo seguro se podrían resumir en:
+Así pues, **mamás y papás tienen un papel fundamental** para establecer un vínculo seguro y saludable con sus hijos e hijas. Las bases para establecer un vínculo seguro se podrían resumir en 3 puntos clave.
+
+## Tres claves para favorecer un vínculo seguro:
 
 * comprender las señales de tu hijo/a y su forma de comunicarse
-* dar respuesta a estas señales de manera afectiva
-* ofrecer seguridad y confianza de manera consistente
+* dar respuesta a estas señales de manera consistente
 * mostrar afecto y cariño a través del lenguage de un contacto físico afectivo (abrazos, besos, cariños) y del tiempo para estar o jugar con él/ella
 
-El vínculo se va estableciendo poco a poco y requiere constancia del cuidador. Es importante además, que la figura de apego cuide su propio bienestar emocional y físico para poder estar disponible y atenta para una crianza afectiva y segura.
+El vínculo se va estableciendo poco a poco y requiere constancia del cuidador. Es por eso importante que, además, la figura de apego cuide su propio bienestar emocional y físico para poder estar disponible y atento/a para una crianza afectiva y el desarrollo de un vínculo seguro con el menor.
 
-Quizás haya algunas preguntas que quieras responder. 
+Quizás haya algunas preguntas a las que quieras respuestas. 
 
-¿Le cuestan mucho a tu hijo los momentos de despedida? 
+## A mi hijo/a le cuestan mucho las despedidas, ¿por qué le pasa?, ¿tiene eso relación con el vínculo? 
 
 Como habrás podido comprobar leyendo sobre los disistintos tiops de apego, **es algo muy normal y corriente que a un niño o niña le provoque malestar y sufrimiento el alejarse de la figura de apego**. Con el tiempo lo más normal es que el malestar disminuya y que el niño o niña sienta que se queda en un entorno seguro y sepa que la figura de apego regresa al cabo de unas cuantas horas. 
 
