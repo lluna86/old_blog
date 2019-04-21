@@ -29,3 +29,7 @@ En caso de que el malestar se prolongue mucho en el tiempo al acudir a un entorn
 Es muy importante el poder compartir estas inquietudes con las personas que tengas cerca. En caso de que valores que la despedida en la guardería está siendo difícil, háblalo con las maestras y pregúntales cuánto tarda en calmarse tu hijo/a.
 
 * Mi hijo/a no se entretiene cuando no estoy,
+
+
+
+##
