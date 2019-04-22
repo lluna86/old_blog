@@ -22,7 +22,7 @@ Las bases para establecer un vínculo seguro se podrían resumir en 3 puntos cla
 
 El vínculo se va estableciendo poco a poco y requiere constancia del cuidador. Es por eso importante que, además, la figura de apego cuide su propio bienestar emocional y físico para poder estar disponible y atento/a para una crianza afectiva y el desarrollo de un vínculo seguro con el menor.
 
-
+\_\_\_\_\_\__
 
 Quizás haya algunas preguntas a las que quieras respuestas.
 
@@ -36,17 +36,11 @@ Es muy importante el poder compartir estas inquietudes con las personas que teng
 
 
 
-* Mi hijo/a no se entretiene cuando no estoy,
-
-Noto que es a mi a quien le cuesta más alejarme de mi hijo/a, ¿es normal?
+* Noto que es a mi a quien le cuesta más alejarme de mi hijo/a, ¿es normal?
 
 Si percibes que te sabe muy mal dejar a tu hijo/a con otras personas y te cuesta alejarte serenamente, decirte que es un sentimiento muy corriente y normal. Dejar a tu hijo/a atrás con la vivencia de su malestar es un sentimiento difícil de tolerar. Aún así, puedes estar tranquilo/a que un hecho así no afectará a vuestro vínculo ya que lo importante es tu atención y capacidad de respuesta afectiva cuando estáis juntos. 
 
-Mostrar una emoción de tristeza en un momento de despedida es algo sano y común. Aún así, los niños y niñas son muy hábiles en percibir las emociones de sus figuras de apego. De ahí la necesidad de
-
-
-
-
+Mostrar una emoción de tristeza en un momento de despedida es algo sano y común. Aún así, los niños y niñas son muy hábiles en percibir las emociones de sus figuras de apego y **sentirán vuestra tensión o vuestro malestar al alejaros**. De ahí la necesidad de vigilar en los momentos de despedida que sepas de antemano que son especialmente difíciles para ti, e intentar mostrar seguridad y confianza en que tu hijo/a estará bien. Eso le ayudará más que el hecho de que te vayas con tristeza o contrariedad, y más que el hecho de que vuelvas a abrazarlo/a más veces antes de irte. Es un momento difícil pero seguro que podrás alejarte de una manera positiva si piensas en lo que le transmites sobre el entorno donde se queda. ¿Es seguro? ¿A pesar de que cueste la despedida, piensas que estará bien? Si has respondido que sí, ya estás a un paso de conseguir alejarte de una manera más serena y tranquila.
 
 
 
