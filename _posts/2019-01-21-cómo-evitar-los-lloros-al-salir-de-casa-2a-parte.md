@@ -28,8 +28,4 @@ Alargar la despedida es un error muy común, sobretodo en padres que sienten que
 
 # Señales de progreso
 
-Si la persona que se queda en casa con tu hijo/a te explica a tu regreso que tu hijo/a se entretiene hasta tu vuelta y se alegra al verte se está consolidando el aprendizaje. Aún así ten en cuenta que puede haber momentos más difíciles que otros. Te animo a que lo intentes, sigas los pasos y compartas conmigo tus experiencias, comentarios o dudas.
-
-Si tu hijo no se entretiene cuando te vas, lee este artículo sobre el vínculo o sobre qué hacer durante el día, ya que tu hij@ podría estar mostrando signos de otros malestares que no tengan solo relación con la despedida y regreso del adulto.
-
-(((Liks a artículo sobre el vínculo, actividades diarias qué hacer)))
+Si la persona que se queda en casa con tu hijo/a te explica a tu regreso que tu hijo/a se entretiene hasta tu vuelta y se alegra al verte se está consolidando el aprendizaje y se está viendo el vínculo seguro que tiene contigo (LINK A APEGO). Aún así ten en cuenta que puede haber momentos más difíciles que otros. Te animo a que lo intentes, sigas los pasos y compartas conmigo tus experiencias, comentarios o dudas.
